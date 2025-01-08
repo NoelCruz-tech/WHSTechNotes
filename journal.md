@@ -1,1 +1,2 @@
-
+# January 8, 2025
+Reflecting back on last semester the most enjoyable thing about the class I was in is that I was ablw to work with groups and code. The one thing that can be improved is to be better at coding. As we start the semester I would like to learn and understand coding a little bit more, I feel like im struggling on coding a bit and I would like to understand it more. There are certifications I would like, I would like python. To support me achieve this goal I would need to practice in my own time. 
